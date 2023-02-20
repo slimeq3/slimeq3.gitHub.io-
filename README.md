@@ -1,1 +1,1 @@
-# slimeq3.github.io-
+# slimeq3.gitHub.io-
